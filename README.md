@@ -2,4 +2,5 @@
 - In this moment i am a student of IT, and interested to get know-how in fields of computation, programming and Network computer´s.
 - So, i´m an african guy, from Angola country.
 - I am looking for you all that have passion and dreams to become great man...
+- Contact me: EMAIL<- wilsond.farias.joaquim@gmail.com
 - #Let´s_do_it
